@@ -1,1 +1,0 @@
-# yasavok.github.io
